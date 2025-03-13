@@ -12,9 +12,7 @@ May this festival of colors bring happiness, prosperity, and positivity into you
 ## 🎁 Surprise Inside! 🎁  
 
 I've got a fun *surprise* for you all! Click the button below to check it out:  
-
-[![HAPPY HOLI 🖤](https://img.shields.io/badge/HAPPY%20HOLI%20🐈‍⬛-%F0%9F%92%A5-black?style=for-the-badge)]([https://www.snapchat.com/unlock/?type=SNAPCODE&uuid=YOUR-SNAPCODE-LINK](https://lens.snapchat.com/abea268a8d9247e4b0dbfad38cb2f025?share_id=sHJlN1CoPJk&locale=en-GB))  
-
+[![🎊 Unlock Your Surprise](https://img.shields.io/badge/Click%20Here%20For%20Surprise-%F0%9F%92%A5-Black?style=for-the-badge)](https://lens.snapchat.com/abea268a8d9247e4b0dbfad38cb2f025?share_id=sHJlN1CoPJk&locale=en-GB)  
 ---
 
 ### 💖 Let's Celebrate Together!  
